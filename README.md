@@ -1,0 +1,2 @@
+# school-project-1.0
+ A CBSE CLASS XII PROJECT FOR STUDENTS 
